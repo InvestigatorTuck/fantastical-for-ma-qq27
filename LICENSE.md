@@ -1,4 +1,4 @@
-
+Enhance Fantastical for macOS with Fantastical for macOS ultimate Tool - markdown support and AI assistant, the #1 tool. Includes markdown support and AI assistant for a smoother
 
 
 
